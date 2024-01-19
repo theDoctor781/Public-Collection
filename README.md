@@ -18,3 +18,9 @@ Unterstütze Hoppel mit
  - [Patreon](https://www.patreon.com/TheDoctor_HP)
  - [PayPal](https://www.paypal.com/donate?hosted_button_id=XCSL2HXTDEXEW)
  - Einkauf bei [Amazon](https://amzn.to/2WC0Iug)
+
+
+## Accounts auf Twitter
+[Hoppel](https://twitter.com/MHoppelpoppel)
+[Hoppels Papa Nocberry](https://twitter.com/NBerryInk)
+[Doc](https://twitter.com/TheDoctor_781)
