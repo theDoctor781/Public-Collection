@@ -3,7 +3,7 @@
 Der öffentliche Bereich
 
 
-## Soziales Projekt **"Lebensmittelpaten"** unterstützen
+## Soziales Projekt "Lebensmittelpaten" unterstützen
 
 Werde [Lebensmittelpate](https://www.gruenlandstaudenhof.de/cms2/gruenlandstaudenhof/lebensmittelpaten/)
 
