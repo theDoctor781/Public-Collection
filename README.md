@@ -21,6 +21,6 @@ Unterstütze Hoppel mit
 
 
 ## Accounts auf Twitter
-[Hoppel](https://twitter.com/MHoppelpoppel)
-[Hoppels Papa Nocberry](https://twitter.com/NBerryInk)
-[Doc](https://twitter.com/TheDoctor_781)
+[Hoppel](https://twitter.com/MHoppelpoppel)  
+[Hoppels Papa Nocberry](https://twitter.com/NBerryInk)  
+[Doc](https://twitter.com/TheDoctor_781)  
