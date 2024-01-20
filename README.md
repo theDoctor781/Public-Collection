@@ -23,10 +23,10 @@ Unterstütze Hoppel mit
 [Hoppel (Twitter)](https://twitter.com/MHoppelpoppel)   
 [Hoppels Papa Nocberry (Twitter)](https://twitter.com/NBerryInk)  
 
-[Doc (Twitter)](https://twitter.com/TheDoctor_781) 
-[Doc (Fedi)](https://mastodon.social/@TheDoctor512) 
+[Doc (Twitter)](https://twitter.com/TheDoctor_781)  
+[Doc (Fedi)](https://mastodon.social/@TheDoctor512)  
 [Doc (BlueSky)](https://bsky.app/profile/thedoctor512.bsky.social)  
-[Doc (Instagram)](https://www.instagram.com/thedoctor512?igsh=bjVvYjljb202emwy)
+[Doc (Instagram)](https://www.instagram.com/thedoctor512?igsh=bjVvYjljb202emwy)  
 [Doc (Threads)](https://www.threads.net/@thedoctor512)
 
 
